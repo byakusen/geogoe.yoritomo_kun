@@ -1,0 +1,1 @@
+# geogoe.yoritomo_kun
